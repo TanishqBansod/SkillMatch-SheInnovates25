@@ -1,5 +1,8 @@
 ## 3rd Place at SheInnovates2025
 
+![gallery](https://github.com/user-attachments/assets/60230caf-5fb4-44b1-bc0f-5b896b1d66fe)
+
+
 # **SkillMatch: Eliminating Bias in Hiring**
 
 ---
